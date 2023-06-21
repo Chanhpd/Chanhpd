@@ -1,4 +1,4 @@
-#👋 Hi, I’m Duy Chanh 🫡
+## 👋 Hi, I’m Duy Chanh 🫡
 
 
 ## 🌐Socials
