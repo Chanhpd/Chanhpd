@@ -1,5 +1,6 @@
 ## 👋 Hi, I’m Duy Chanh 🫡
-![image](https://github.com/Chanhpd/Chanhpd/assets/92411322/c8541f27-2916-4a76-96cb-950930cfb498)
+![image](https://github.com/Chanhpd/Chanhpd/assets/92411322/85e87525-4b55-4b02-a14c-25554fb99cef)
+
 
 
 
